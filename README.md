@@ -31,7 +31,7 @@ I’m an Algerian-born Developer & Designer, Helping both companies and individu
 
 ## PORTFOLIO
 
-[bendakir.me](https://bendakir.com)
+[bendakir.com](https://bendakir.com)
 
 ## MAIL
 
